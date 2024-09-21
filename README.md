@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on many fun projects together 
 - 📫 How to reach me on my gmail
 - 😄 Pronouns: she/her 🏳️‍🌈
-- ⚡ Fun fact: 
+
 
 <!---
 Cyber-kay12/Cyber-kay12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
